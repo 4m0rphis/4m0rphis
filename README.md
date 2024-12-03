@@ -3,7 +3,9 @@
 I am Boussad Mohamed Karim
 
 ### Socials 📫 💬
-  Want to reach me?
+  Want to reach out to me?
+
+  Check out my [website](https://amorphis.fr/) !
   
   **Add me on discord:** 4morphis
 
